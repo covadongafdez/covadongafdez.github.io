@@ -1,2 +1,0 @@
-# covadongafdez.github.io
-ejemplo
